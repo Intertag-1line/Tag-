@@ -4,4 +4,8 @@ Found anything you think might be incorrect (representation, information etc wis
 
 (insert image here)
 
-In media today, there's of course good works and bad works. A lot of the bad works usually contain offensive content, such as incorrect representation of certain groups, stolen content and general issues between creators and consumers.
+
+
+
+In media today, there's of course good works and bad works. A lot of the bad works usually contain offensive content, such as incorrect representation of certain groups, stolen content and general issues between creators and consumers. 
+To create a thread about a work you found, please go to the discussions page to continue !
